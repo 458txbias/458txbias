@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @458txbias
 - 👀 I’m interested in: It's none of your business
 - 🌱 I’m currently learning Arma Modding
-- 📫 How to reach me Discored: 458.txbias
+- 📫 How to reach me Discord: 458.txbias
 - 😄 Pronouns: He
 - ⚡ Fun fact: No Fun fact about me :( 
 
